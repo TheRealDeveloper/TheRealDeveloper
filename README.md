@@ -1,4 +1,4 @@
-✨[Developer auf TropyMc](https://discord.gg/2DZvPM4k)
+✨[Pocketmine Developer](https://discord.gg/2DZvPM4k)
 
 [![Discord](https://discord.c99.nl/widget/theme-1/859899416339939348.png)](#)
 
